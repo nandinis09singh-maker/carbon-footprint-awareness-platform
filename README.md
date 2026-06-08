@@ -1,0 +1,1 @@
+# carbon-footprint-awareness-platform
